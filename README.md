@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jingshengchuan
+- 👋 Hi, I’m @Yay
 - 👀 I’m interested in reading
 - 🌱 I’m currently learning my school lessons
 - 💞️ I’m looking to collaborate on someone who are interested in philosophy
